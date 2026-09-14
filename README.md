@@ -1,2 +1,0 @@
-# UKHONA STUDIO
-
